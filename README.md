@@ -1,0 +1,2 @@
+# yazilim_sinama_projemiz
+yazilim_sinama_projemiz
